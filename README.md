@@ -12,6 +12,7 @@ Você pode entrar em contato comigo 📫
 
 @rikardin_S7
 
-![descrição do GIF] ([https://media1.tenor.com/m/COM78THbePQAAAAd/neymar.gif](https://c.tenor.com/COM78THbePQAAAAd/tenor.gif))
+![descrição do GIF] ((https://c.tenor.com/COM78THbePQAAAAd/tenor.gif))
+
 
 
