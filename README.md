@@ -12,7 +12,7 @@ Você pode entrar em contato comigo 📫
 
 @rikardin_S7
 
-![descrição do GIF] ((https://c.tenor.com/COM78THbePQAAAAd/tenor.gif))
+![](https://c.tenor.com/COM78THbePQAAAAd/tenor.gif)
 
 
 
